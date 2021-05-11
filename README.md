@@ -1,2 +1,2 @@
 # my-projects
-- There will be my projects soon 🐜
+- My projects will be here soon 🐜
